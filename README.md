@@ -1,1 +1,0 @@
-# NNPTUDM_ST5
